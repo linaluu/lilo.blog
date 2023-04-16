@@ -3,6 +3,7 @@ title = "Wie muss sich die Gesellschaft ändern, damit sich Transgender Personen
 date = "2023-04-16"
 draft = false
 pinned = false
+image = "/Users/admin/Desktop/Neuer Ordner/IMG_0997.jp2\n/Users/admin/Desktop/Neuer Ordner/IMG_0999.jp2"
 description = "Ich sitze in einen unbeschreiblichen hellen, hohen und gemütlichen Raum. Alle Farben sind schön aufeinander abgestimmt und Pflanzen schmücken den Raum mit schmeichelnden Grünstichen. Eine besondere Person sitzt vor mir, die einen schon Anfangs sympathisch empfangen hat. An meinen Beinen sitzen zwei süsse Hunde, die darauf warten, gestreichelt zu werden.\n"
 +++
 Tim ist eine Transgender-Person, die seit einigen Jahren offen zu seiner Identität steht. Im Gespräch erzählte er, dass es für viele Menschen schwer sei, die Transgender-Community zu akzeptieren und zu verstehen. Auf die Frage, was er diesen Menschen sagen möchte, antwortete Tim: "Ich glaube, den meisten würde es helfen, um die Leute herum zu sein oder sich vielleicht auch mal trauen, auf so eine Person zuzugehen. Die meisten von uns sind da auch sehr offen. Man darf uns alles fragen. Das ist uns lieber, als wenn sich hinten herum eine Meinung gebildet wird."
