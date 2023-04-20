@@ -1,7 +1,7 @@
 +++
 title = "Das Wetter ist schön"
 date = "2023-02-23"
-draft = false
+draft = true
 pinned = false
 image = "1356accfd02bd9d2248fde9f1d3f598e.jpg"
 footnotes = "Internet"
