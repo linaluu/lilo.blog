@@ -10,7 +10,7 @@ description = "Ich sitze in einen unbeschreiblichen hellen, hohen und gemütlich
 
 *In einer Transgenergesellschaft sind verschiedene Geschlechtsidentitäten und Geschlechtsausdrücke anerkannt und respektiert. Menschen haben die Freiheit, ihr Geschlecht und ihren Genderausdruck zu wählen, unabhängig von den Erwartungen und Normen, die "traditionell" mit ihrem biologischen Geschlecht verbunden sind.*
 
-
+![](img_0999.jp2)
 
 Tim ist eine Transgender-Person, die seit einigen Jahren offen zu ihrer Identität steht. Während dem Gespräch erzählt er, dass es gar nicht für viele Menschen schwierig ist, die Transgender-Community zu akzeptieren und zu verstehen. Was Tim den Menschen sagen möchte, die die Situation anders sehen, antwortet er: "Ich glaube, den meisten würde es helfen, um die Leute herum zu sein oder sich vielleicht auch mal zu trauen, auf so eine Person zuzugehen. Die meisten von uns sind da auch sehr offen. Man darf uns alles fragen. Das ist uns lieber, als wenn sich hinten herum eine Meinung gebildet wird."
 
