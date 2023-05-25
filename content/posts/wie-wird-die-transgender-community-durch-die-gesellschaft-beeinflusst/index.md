@@ -3,7 +3,7 @@ title = "Wie wird die Transgender-Community durch die Gesellschaft beeinflusst?"
 date = "2023-05-25"
 draft = false
 pinned = false
-description = ""
+description = "In einer Transgenergesellschaft sind verschiedene Geschlechtsidentitäten und Geschlechtsausdrücke anerkannt und respektiert. Menschen haben die Freiheit, ihr Geschlecht und ihren Genderausdruck zu wählen, unabhängig von den Erwartungen und Normen, die \"traditionell\" mit ihrem biologischen Geschlecht verbunden sind.\n- Interview von Lina Reichenwallner"
 +++
 **Was möchtest du den Menschen sagen, die Schwierigkeiten haben, die Transgender-Community zu akzeptieren und zu verstehen?**
 
