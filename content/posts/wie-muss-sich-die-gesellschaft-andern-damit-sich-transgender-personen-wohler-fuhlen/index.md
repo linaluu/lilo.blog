@@ -17,9 +17,9 @@ Für Tim war schon in der Kindheit klar, dass er sich als Junge fühlte, auch we
 
  
 
-Der Begriff „Transvestiten“ wurde 1910 vom Sexualforscher Magnus Hirschfeld eingeführt. 1930 wurde in einer Dresdner Frauenklinik eine der ersten Geschlechtangleichungen durchgeführt. Leider verstarb die Patientin rund ein Jahr danach. In der Folge fanden eine Vielzahl an Experimenten und Forschungen statt. Ab den 1950er Jahren wurde ,,Transsexualität‘‘ von der Medizin und Psychologie als Krankheit definiert und schliesslich als solche in der internationalen Klassifikation von Krankheiten (ICD) gelistet.
-
-Erst in den letzten Jahren hat ein Umdenken stattgefunden. 2018 entfernte die Weltgesundheitsorganisation (WHO) Geschlechtsinkongruenz aus der Liste der psychischen Erkrankungen und stufte sie stattdessen als Variante der Geschlechtsidentität ein. Auch in den Medien und der Popkultur sind Transgender-Personen heute präsenter denn je - von Laverne Cox in der Serie "Orange Is the New Black" bis hin zu der TV- Persönlichkeit Caitlyn Jenner.
+> Der Begriff „Transvestiten“ wurde 1910 vom Sexualforscher Magnus Hirschfeld eingeführt. 1930 wurde in einer Dresdner Frauenklinik eine der ersten Geschlechtangleichungen durchgeführt. Leider verstarb die Patientin rund ein Jahr danach. In der Folge fanden eine Vielzahl an Experimenten und Forschungen statt. Ab den 1950er Jahren wurde ,,Transsexualität‘‘ von der Medizin und Psychologie als Krankheit definiert und schliesslich als solche in der internationalen Klassifikation von Krankheiten (ICD) gelistet.
+>
+> Erst in den letzten Jahren hat ein Umdenken stattgefunden. 2018 entfernte die Weltgesundheitsorganisation (WHO) Geschlechtsinkongruenz aus der Liste der psychischen Erkrankungen und stufte sie stattdessen als Variante der Geschlechtsidentität ein. Auch in den Medien und der Popkultur sind Transgender-Personen heute präsenter denn je - von Laverne Cox in der Serie "Orange Is the New Black" bis hin zu der TV- Persönlichkeit Caitlyn Jenner.
 
  
 
