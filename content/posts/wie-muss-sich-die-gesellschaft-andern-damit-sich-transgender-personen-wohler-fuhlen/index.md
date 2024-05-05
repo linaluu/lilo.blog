@@ -31,21 +31,11 @@ Für Tim war schon in der Kindheit klar, dass er sich als Junge fühlte, auch we
 
 Für viele Transgender-Menschen ist der Weg zur Selbstfindung und Akzeptanz ein langer und herausfordernder Prozess, bei dem sie sich oft gegen Vorurteile und Unverständnis in ihrem Umfeld behaupten müssen. Dennoch betont Tim, dass die meisten Transgender-Menschen durchaus offen für Fragen sind und es ihnen lieber ist, direkt angesprochen zu werden, als dass sich hinter ihrem Rücken eine Meinung über sie gebildet wird. Tim plädiert auch in Bezug auf Pronomen und genderneutrale Sprache für Verständnis auf beiden Seiten. Auch für ihn, obwohl er sich aktiv in der LGBTQ- Community bewege, sei dies nicht immer einfach. So müsse auch er sich, beispielweise bei Verfassen einer E-Mail, oft überlegen, wie er einen Satz am besten formuliere, ohne dabei jemanden persönlich anzugreifen.  Er wünscht sich ein "Geben und Nehmen", bei dem niemand unter Druck gerät.
 
- 
-
 Trotz der Herausforderungen überwiegen für Tim die positiven Aspekte seiner Geschlechtsumwandlung. "Ich gehe schon mit einem ganz anderen Gefühl auf Menschen zu", sagt er. Auch in Beziehungen habe sich einiges verändert - zum Guten. "Die Meisten haben es vielleicht auch schon ein bisschen vermutet, daher haben sie sehr gut reagiert."
-
- 
 
 Tim erklärt, dass sich das Outing als Transgender-Person fast ausnahmslos positiv auf Freundschaften und Beziehungen auswirkte. Durch die Möglichkeit, endlich zu sich selbst zu stehen, können Transgender-Personen offener und selbstbewusster auf andere Menschen zugehen. Auch wenn jeder Mensch seinen individuellen Weg gehen muss, zeigt Tims Geschichte, dass es möglich ist, zu sich selbst zu finden und ein erfülltes Leben zu führen - unabhängig von gesellschaftlichen Rollenbildern. Mit sich selber zufrieden zu sein, ist am wichtigsten, meint Tim. „Wenn man genug Selbstvertrauen hat, braucht man die Bestätigung von außen nicht."
 
- 
-
 Für andere Transgender-Menschen, die gerade ihren Weg suchen, hat Tim einen wichtigen Rat: "Man sollte ausprobieren, sich zeigen, dazu stehen was man ist und sich vor allem auch mit anderen austauschen, die den Weg bereits gegangen sind." Anlaufstellen wie die Transgender Network Switzerland (TGNS) können dabei Unterstützung bieten.
-
- 
-
- 
 
  
 
@@ -53,6 +43,4 @@ Für andere Transgender-Menschen, die gerade ihren Weg suchen, hat Tim einen wic
 
 Doch die Transgender-Community ist nach wie vor mit Vorurteilen und Missverständnissen konfrontiert. Viele Transgender-Menschen erleben Diskriminierung, Ausgrenzung und Gewalt. Besonders betroffen sind junge Transpersonen, die oft mit Unverständnis und Ablehnung in ihrem Umfeld konfrontiert sind. Um mehr Akzeptanz und Verständnis zu schaffen, sei es wichtig, den direkten Kontakt zu suchen und offen für Fragen zu sein. „Mit einem direkten Kontakt würde man merken, dass wir wie alle anderen Menschen sind.“ Umso wichtiger sind Aufklärung, Sichtbarkeit und Solidarität. Initiativen wie das TGNS setzen sich für die Rechte und Anliegen von Transgender-Personen ein. Und auch in der Wissenschaft rückt das Thema zunehmend in den Fokus - von Studien zur Lebenssituation bis hin zu medizinischen Leitlinien.
 
- 
-
- Letztlich geht es darum, die Vielfalt menschlicher Identitäten und Erfahrungen anzuerkennen und zu respektieren.  Nur so können wir eine Gesellschaft schaffen, in der sich alle Menschen frei und selbstbestimmt entfalten und bewegen können - unabhängig von Geschlechternormen und-Zuschreibungen. Der Weg dahin ist lang, aber die Geschichte zeigt: Transgender-Personen haben schon immer gelebt und gekämpft. Und sie werden auch in Zukunft sichtbar und stolz ihre Identität leben.
+Letztlich geht es darum, die Vielfalt menschlicher Identitäten und Erfahrungen anzuerkennen und zu respektieren.  Nur so können wir eine Gesellschaft schaffen, in der sich alle Menschen frei und selbstbestimmt entfalten und bewegen können - unabhängig von Geschlechternormen und-Zuschreibungen. Der Weg dahin ist lang, aber die Geschichte zeigt: Transgender-Personen haben schon immer gelebt und gekämpft. Und sie werden auch in Zukunft sichtbar und stolz ihre Identität leben.
