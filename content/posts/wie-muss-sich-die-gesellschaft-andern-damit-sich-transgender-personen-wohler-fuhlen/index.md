@@ -6,6 +6,10 @@ pinned = false
 image = "img_0997-3-.jpg"
 description = "Ein Besuch im Alltag einer Transgenderperson"
 +++
+*Lina lu Reichenwallner*
+
+
+
 Ein Besuch im Alltag einer Transgenderperson
 Für viele Menschen ist es selbstverständlich, dass sie sich mit dem Geschlecht identifizieren, welches ihnen bei der Geburt zugewiesen wurde. Doch für Transgender-Menschen ist dies nicht der Fall. Sie fühlen sich dem anderen Geschlecht zugehörig oder empfinden sich weder als Mann noch als Frau.
 
