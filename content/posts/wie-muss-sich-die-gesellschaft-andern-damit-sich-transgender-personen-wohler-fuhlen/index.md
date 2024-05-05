@@ -11,6 +11,8 @@ description = "Ein Besuch im Alltag einer Transgenderperson"
 
 
 Ein Besuch im Alltag einer Transgenderperson
+
+
 Für viele Menschen ist es selbstverständlich, dass sie sich mit dem Geschlecht identifizieren, welches ihnen bei der Geburt zugewiesen wurde. Doch für Transgender-Menschen ist dies nicht der Fall. Sie fühlen sich dem anderen Geschlecht zugehörig oder empfinden sich weder als Mann noch als Frau.
 
 Tim, ein 35-jähriger Transmann aus Kehrsatz, hat diesen Weg bereits hinter sich. An einem warmen Tag treffe ich Tim, der mit seiner Frau zusammenlebt, in ihrem gemeinsamen Haus in Kehrsatz. Ich werde herzlich von ihnen und zwei kleinen Hunden empfangen. Das Haus ist angenehm warm gestaltet und ein Apero wartet auf mich. Ich setze mich neben den vielen Grünpflanzen auf die Couch und zu füssen liegen mir die sanft schnarchenden Hündlein. Tim setzt sich in einen antiken Sessel und überschlägt seine Beine.  Im Gespräch erzählt er von seinen Erfahrungen und gibt Einblicke in die Herausforderungen und Freuden, die mit einer Transition verbunden sind.
